@@ -1,1 +1,1 @@
-![image](https://github.com/jainam-patel/weather-app/assets/154255365/fa6ce746-cf3d-42f7-b69f-ace75f2c9d16)
+![image](https://github.com/jainam-patel/weather-app/assets/154255365/2a9cc24a-30e9-48b4-bb8f-8900b2fb5f56)
